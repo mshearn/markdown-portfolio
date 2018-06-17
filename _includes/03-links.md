@@ -1,1 +1,1 @@
-[LinkedIn](https://www.linkedin.com/in/mikeshearn/)
+Connect with me on [LinkedIn](https://www.linkedin.com/in/mikeshearn/)
